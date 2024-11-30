@@ -1,0 +1,1 @@
+we created a website on Educational challenges in rural areas. with which people who doesnt have proper facilities to take education can be helped. here in the website we created thre will be mentors who will help to tackle problems regarding eductaion.
